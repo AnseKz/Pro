@@ -6,6 +6,7 @@ As agressões podem ser de ordem verbal, física e psicológica, comumente acont
 As vítimas de bullying podem sofrer agressões de uma pessoa isolada ou de um grupo. Esse grupo pode atuar apenas como “espectadores inertes” da violência, que indiretamente contribuem para a continuidade da agressão.
 
 Bullying escolar
+
 ![image](https://github.com/AnseKz/Pro/assets/142409622/9be1d119-564c-434f-9567-f95385392377)
 
 O bullying pode acontecer no condomínio, na vizinhança, em grupos ou agremiações esportivas etc., mas o local onde mais acontece esse tipo de crime é na escola. Fatores sociológicos e psicológicos explicam esse fenômeno: é na escola onde os jovens passam grande parte de seu tempo e interagem com um número maior de pessoas.
